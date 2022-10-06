@@ -1,6 +1,6 @@
 Introduction -
 
-Our privacy policy will help you understand what information we collect at Inverter Calculator, how Inverter Calculator uses it, and what choices you have. Inverter Calculator app was built by Onyeka Ekwunife as a free app.
+eOur privacy policy will help you understand what information we collect at Inverter Calculator, how Inverter Calculator uses it, and what choices you have. Inverter Calculator app was built by Onyeka Ekwunife as a free app.
 
 The App does not collect any Personal Information of the user.
 
